@@ -1,0 +1,6 @@
+hsaasooxoooe000000e-------qqqqqqqqqqq
+ddddddddddddddddddiiiivvvvvvvvvvvvvvv
+pppppppppeeeeeeeeeeettttttttttttttttttt
+eeeeeeeeeeeeeeeeuuuuuuuuuuuuooooooooooo
+yyyyyyyyyyyyyyyyiiiiiiiiiippppppppppppp
+bbbbbbbbbbbbbbyyyyyyyyyyrrrrrrrrrrrrrrr
