@@ -6,4 +6,4 @@ yyyyyyyyyyyyyyyyiiiiiiiiiippppppppppppp
 bbbbbbbbbbbbbbyyyyyyyyyyrrrrrrrrrrrrrrr
 kkkksksoowwoowwwwwwwwwwwwwrrrrrrrrrrrrr
 yyyyyyyyyyyyeeeeeeeeeeeetttttttttttttt
-a=8
+a=6
